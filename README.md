@@ -1,0 +1,2 @@
+# blanco mini
+ codigos
